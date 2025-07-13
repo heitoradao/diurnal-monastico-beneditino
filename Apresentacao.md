@@ -1,9 +1,9 @@
 # Apresentação
  
 A Igreja, intermediária entre Deus e os homens, tem a dupla missão de transmitir-lhes a Palavra de Deus e de oferecer a Deus, em união com Jesus Cristo, o culto divino.
-A encíclica **Mediator Dei** mostrou, com advirável riqueza de pensamentos e exemplos, que um dos principais meios dos quais a Igreja se serve para realizar esta dupla finalidade é a Sagrada Liturgia. Com efeito, participar da Liturgia é deixar-se formar pela espiritualidade da Igreja e tornar sua a oraćão da santa Igreja.
+A encíclica **Mediator Dei** mostrou, com advirável riqueza de pensamentos e exemplos, que um dos principais meios dos quais a Igreja se serve para realizar esta dupla finalidade é a Sagrada Liturgia. Com efeito, participar da Liturgia é deixar-se formar pela espiritualidade da Igreja e tornar sua a oração da santa Igreja.
 É submeter-se a este fluxo da vida divina que, partindo de Dous passa por nós e retorna a Ele como um Sacrifício de ação de graças e de louvor.
-O culto da Igreja, a sagrada Liturgia, funda-se principalmente sobre o Lacrifício da Missa e a participaćão dos Sacramentos pelos quais se opera a renovaćão e intensificaćão da vida espiritual dos cristãos.
+O culto da Igreja, a sagrada Liturgia, funda-se principalmente sobre o Lacrifício da Missa e a participação dos Sacramentos pelos quais se opera a renovação e intensificação da vida espiritual dos cristãos.
 
 O movimento litúrgico tem conseguido, em nossos meios católicos, maior integração da vida espiritual dos fiéis no santo Sacrifício da Missa e nos Sacramentos.
 Este resultado alcançado, no que concerne à Missa, estimula tentar o mesmo no que se refere ao Ofício divino, complemento do Sacrifício do altar.
