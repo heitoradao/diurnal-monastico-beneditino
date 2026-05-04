@@ -1,0 +1,1 @@
+The image provided is too blurry and low-resolution to accurately transcribe any text. It appears to be a blank or very faint page with no visible content.
