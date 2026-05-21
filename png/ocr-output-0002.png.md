@@ -1,0 +1,1 @@
+The image provided is too blurry and low-resolution to accurately recognize any text or content. It appears to be a blank or heavily blurred page with no visible text.
