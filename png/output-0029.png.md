@@ -20,7 +20,7 @@ Estrutura das Horas Menores
 1. “Deus, in adiutorium meum…”
 2. Hino
 3. 3 Salmos com uma Antifona
-4. Capitulo
+4. Capítulo
 5. Verso e Responso
 6. Kyrie eleison (Pater noster em silencio)
 7. Oração do dia (à Prima oração especial)
@@ -33,7 +33,7 @@ Estrutura das Completas
 4. “Converte” e “Deus, in adiutorium…”
 5. 3 Salmos sem Antifona
 6. Hino
-7. Capitulo, Verso e Responso
+7. Capítulo, Verso e Responso
 8. Kyrie eleison e Pater noster (em silencio)
 9. Oração especial, sempre a mesma
 10. Versiculos e Bênção
